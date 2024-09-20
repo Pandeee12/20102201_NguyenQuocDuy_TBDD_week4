@@ -1,4 +1,5 @@
 # 20102201_NguyenQuocDuy_TBDD_week4
+https://drive.google.com/drive/folders/120USFNFJAefQ1_h9UrPe1nyHqlgQXkUe?fbclid=IwY2xjawFZojNleHRuA2FlbQIxMQABHfhfmKT3PBpWlfjKzujIHNmpIJqEGgqiXkBKrUZ424hcBpXHO4ljsgOEew_aem_ZhEJNFh6cj_6YMd0dK7dKw
 2a
 ![image](https://github.com/user-attachments/assets/a5345781-53fe-4b56-a255-03060fae9a06)
 2b
